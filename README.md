@@ -1,0 +1,1 @@
+Studio Fitkari a design studio based in Gurgaon, India
